@@ -5,7 +5,7 @@
 <img align="right" src="https://sun9-12.userapi.com/s/v1/ig2/Gk0cZeP4zXmhtCGYMQq4eeQ4u6Go7UnLVBcsxL28WGQNlj7sdeuDO3TyHleKMpBwvUJ0wGrH8grgGB4f4Z9adcs_.jpg?quality=96&as=32x34,48x51,72x77,108x115,160x171,240x256,360x384,480x512,540x576,640x683,720x768,1080x1152,1280x1365,1440x1536,1920x2048&from=bu&u=5bdDvVvWLqEJD5VOUqZxxomkltD05xnp10K9pX_egm8&cs=1920x0" witdh="450" height="490">
 
 
-𝙶𝚎𝚕𝚢𝚊 / 𝙿𝚑𝚊𝚜𝚎𝚛&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝟸𝟶 𝚢𝚎𝚊𝚛𝚜 𝚘𝚕𝚍&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝙷𝚎/𝚂𝚑𝚎
+𝙶𝚎𝚕𝚢𝚊 / 𝙿𝚑𝚊𝚜𝚎𝚛&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝟸𝟶 𝚢𝚎𝚊𝚛𝚜 𝚘𝚕𝚍&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝙷𝚎/𝚂𝚑𝚎
 <details>
 <summary>About me !  </summary>
 I'm a very easy going person and I like a lot of fandoms so don't be afraid to write, it will never bother me.
