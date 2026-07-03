@@ -5,23 +5,23 @@
 <img align="right" src="https://sun9-12.userapi.com/s/v1/ig2/Gk0cZeP4zXmhtCGYMQq4eeQ4u6Go7UnLVBcsxL28WGQNlj7sdeuDO3TyHleKMpBwvUJ0wGrH8grgGB4f4Z9adcs_.jpg?quality=96&as=32x34,48x51,72x77,108x115,160x171,240x256,360x384,480x512,540x576,640x683,720x768,1080x1152,1280x1365,1440x1536,1920x2048&from=bu&u=5bdDvVvWLqEJD5VOUqZxxomkltD05xnp10K9pX_egm8&cs=1920x0" witdh="450" height="490">
 
 
-𝙶𝚎𝚕𝚢𝚊 / 𝙿𝚑𝚊𝚜𝚎𝚛&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝟸𝟶 𝚢𝚎𝚊𝚛𝚜 𝚘𝚕𝚍&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝙷𝚎/𝚂𝚑𝚎
+$𝙶𝚎𝚕𝚢𝚊$ / $𝙿𝚑𝚊𝚜𝚎𝚛$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝟸𝟶 $𝚢𝚎𝚊𝚛𝚜$ $𝚘𝚕𝚍$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $𝙷𝚎$ / $𝚂𝚑𝚎$
 <details>
-<summary>About me !  </summary>
-I'm a very easy going person and I like a lot of fandoms so don't be afraid to write, it will never bother me.
-I think too much. I'm shy if I don't really know you. But if I feel comfortable, I might not even shut up. ;)
-Please don't make me do anything I clearly don't want to do. Sometimes that includes talking.
-When I'm overwhelmed, I may be inattentive, so if I miss something you're saying, I apologize. Sometimes it becomes too difficult to comprehend!!
+<summary>$About me$ !  </summary>
+$i'm$ $a$ $very$ $easy$ $going$ $person$ $and$ $i$ $like$ $a$ $lot$ $of$ $fandoms$ $so$ $don't$ $be$ $afraid$ $to$ $write$, $it$ $will$ $never$ $bother$ $me$.
+$i$ $overthink$ $ $much$. $i'm$ $shy$ $if$ $i$ $don't$ $really$ $know$ $you$. $but$ $if$ $i$ $feel$ $comfortable$, $i$ $might$ $not$ $even$ $shut$ $up$. ;)
+$please$ $don't$ $make$ $me$ $do$ $anything$ $i$ $clearly$ $don't$ $want$ $to$ $do$. $sometimes$ $that$ $includes$ $talking$.
+$when$ $i'm$ $overwhelmed$, $i$ $may$ $be$ $inattentive$, $so$ $if$ $i$ $miss$ $something$ $you're$ $saying$, $i$ $apologize$. $sometimes$ $it$ $becomes$ $too$ $difficult$ $to$ $comprehend$!!
 </details>
 
 <details>
-<summary>Interests !  </summary>
-Hannibal; Supernatural; S.T.A.L.K.E.R; Metro; Horror mod's Minecraft, Portal; My Hero Academia; Detroit: Become Human; Max Payne; Assassin`s Creed; FarCry; Bananabussquad; Metal Gear; HazbinHotel; Silent Hill; Resident Evil: 4 / Village; Honkai Star Rail; Genshin Impact; mcyt(Dsmp, Qsmp, MSH2\3; 5opka); Bungou Stray Dogs; Jujutsu Kaisen; BlueLock; Demon Slayer; Patriotism Moriarty; Danganronpa\Danganronpa online; Ranfren; Poison Bugs; Mandela Catalogue; EddsWorld; FnaF; UT(+au); Twitch Streamers; Digital Circus; HelluvaBoss; SquidGame; CookieRun: Kingdom, and other...
+<summary>$Interests$ !  </summary>
+$hannibal$ ; $supernatural$ ; $s.t.a.l.k.e.r$ ; $metro$ ; $horror$ $mod's$ $minecraft$ , $portal$ ; $my$ $hero$ $academia$ ; $detroit$ : $become$ $human$ ; $max$ $payne$ ; $assassin`s$ $creed$ ; $farcry$ ; $bananabussquad$ ; $metal$ $gear$ ; $hazbinhotel$ ; $silent$ $hill$ ; $resident$ $evil$ : $4$ / $village$ ; $honkai$ $star$ $rail$ ; $genshin$ $impact$ ; $mcyt$ ( $dsmp$ , $qsmp$ , $msh2$ \ $3$ ; $5opka$ ) ; $bungou$ $stray$ $dogs$ ; $jujutsu$ $kaisen$ ; $bluelock$ ; $demon$ $slayer$ ; $patriotism$ $moriarty$ ; $danganronpa$ \ $danganronpa$ $online$ ; $ranfren$ ; $poison$ $bugs$ ; $mandela$ $catalogue$ ; $eddsworld$ ; $fnaf$ ; $ut$ ( $+$ $au$ ) ; $twitch$ $streamers$ ; $digital$ $circus$ ; $helluvaboss$ ; $squidgame$ ; $cookierun$ : $kingdom$ , $and$ $other$ ...
 </details>
 
 <details>
-<summary>Dni!  </summary>
-Basic DNI criteria.</a> (If you tolerate or support any of it)<br/>Spawnism and anyone who endorses and support any kind of cults.<br/>I don´t rlly fw roleplay accounts.<br/>  ANY kind of ships. I do it with my beautiful pookie wookie, not YOU
+<summary>$Dni$!  </summary>
+$basic$ $dni$ $criteria$. ($if$ $you$ $tolerate$ $or$ $support$ $any$ $of$ $it$) $spawnism$ $and$ $anyone$ $who$ $endorses$ $and$ $support$ $any$ $kind$ $of$ $cults$. $i$ $don´t$ $rlly$ $fw$ $roleplay$ $accounts$. $any$ $kind$ $of$ $ships$. $i$ $do$ $it$ $with$ $my$ $beautiful$ $pookie$ $wookie$, $not$ $you$
 </details>
 
 
