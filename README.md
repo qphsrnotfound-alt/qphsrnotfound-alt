@@ -29,3 +29,4 @@ $basic$ $dni$ $criteria$. ($if$ $you$ $tolerate$ $or$ $support$ $any$ $of$ $it$)
 </p>
  <img src="https://psv4.userapi.com/s/v1/d2/eM2JtOqGatulNVpqqWbv-k03BvczrIWRGcr44SF9eQebQ4ouDtaehOQjDbcILi2Vk3kmoDxZmPEkofDB0eRz3lXqwrihtbYMCqHjKPLM9M7NK8mLYPAeildqZ25Bm2uogqtRkQK0pZdM/GIF_20260703_033340_210.gif" width="1200"/>
  <p align="center"><img src="https://psv4.userapi.com/s/v1/d2/S1QkZNvF0l9Hs4voDLy04Issr64bUoHDdK-1yHzn5BCI7ZZTfvSFK1o_V1Rw_HAHYRoCWGQkbr0_MzpZ5tF0JhWW618AZTP3_Io7WSHHCMP1yTGVhPvcaKWqwJtROhft6m9kgOZESgAh/IMG_20260703_021946.png" width="1000">
+  <img src="https://komarev.com/ghpvc/?username=qphsrnotfound-alt&label=gangbang+party&color=f5e6d3&style=flat-square" alt="$gangbang$ $party$" />
